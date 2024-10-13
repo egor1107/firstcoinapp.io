@@ -1,1 +1,0 @@
-# firstcoinapp.io
